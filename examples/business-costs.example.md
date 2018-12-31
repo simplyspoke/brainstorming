@@ -1,0 +1,1 @@
+When organizing and diagnosing the issues or challenges that a business faces, it can be helpful to break down op costs by general expenses as well as department or productized service to gain a better understanding of the strong points.
